@@ -1,1 +1,0 @@
-# strona-para-gabriel
